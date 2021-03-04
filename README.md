@@ -1,0 +1,1 @@
+Paddy est un panda
